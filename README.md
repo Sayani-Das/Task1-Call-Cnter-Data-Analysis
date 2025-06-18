@@ -13,6 +13,8 @@
 4.Average speed of answer
 
 ![i](https://github.com/user-attachments/assets/358a35dd-fd6e-44d5-94fb-37bb709cd264)
+![ii](https://github.com/user-attachments/assets/96f9d41e-7ef6-4211-a89d-9052c38b0a9c)
+
 
 
 
